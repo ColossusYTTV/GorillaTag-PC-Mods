@@ -3,7 +3,7 @@ This is the **original Gorilla Tag Cheating** source! There isnt very much here 
 
 # Discord
 If you are still interested in **Gorilla Tag Cheating/Modding** join my discord server
-**https://discord.gg/yttv**
+**https://discord.gg/ptQkvhmyhm**
 
 # Youtube
 And if you just want to support me consider subscribing to my **Youtube**.
